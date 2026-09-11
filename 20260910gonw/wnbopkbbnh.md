@@ -62,12 +62,19 @@
 
 ## 推荐站点
 
-- [三代试管易生女孩吗？能包生女儿吗？一文讲清真相](https://www.wuzhenzhi.cn/97.html)
-- [三代试管婴儿流程步骤视频教程：从检查到移植全流程图解](https://www.wuzhenzhi.cn/98.html)
-- [试管囊胚4AA比3AA成功率高吗？囊胚等级与移植成功率详解](https://www.wuzhenzhi.cn/99.html)
-- [试管婴儿技术_一代二代三代区别_PGT与ICSI原理-悟知试管知识网](https://www.wuzhenzhi.cn/jishu/)
-- [试管婴儿流程步骤详解_促排取卵移植全过程-悟知试管知识网](https://www.wuzhenzhi.cn/liucheng/)
-- [什么人需要做试管_试管适应症_输卵管梗阻与少弱精-悟知试管知识网](https://www.wuzhenzhi.cn/renqun/)
-- [试管婴儿常见问答_试管FAQ_试管费用成功率在线咨询-悟知试管知识网](https://www.wuzhenzhi.cn/wenda/)
+- [['https://www.mimi567.com/389.html', '在南宁二医院做试管婴儿需要审核结婚证吗？']](https://www.mimi567.com/389.html)
+- [['https://www.dygsdyw.com/127450796597.html', '妊娠HCG值对照表参考，怀孕值正常值是多少']](https://www.dygsdyw.com/127450796597.html)
+- [['https://www.ewdboe.cn/121770629473.html', '北京AMH值低如何科学调理备孕']](https://www.ewdboe.cn/121770629473.html)
+- [['https://www.cmanrxrr.cn/1811436136526.html', '会憋尿非常重要,国内供卵包男孩价格']](https://www.cmanrxrr.cn/1811436136526.html)
+- [['https://www.esc45.com/57.html', '腺肌瘤试管婴儿初诊多少钱 子宫腺肌瘤做试管婴儿长方案']](https://www.esc45.com/57.html)
+- [['https://www.xmxinyhwzhs.cn/29851615523879.html', '2026年泰国最好的三代佛山代生试管婴儿医院准备费用十万够吗(泰国三代佛山代生试管婴儿医院排名)']](https://www.xmxinyhwzhs.cn/29851615523879.html)
+- [['https://www.cndcxc.com/daiyunketang/20251021/17021.html', '试管三代供卵，试管婴儿宝宝移植到哪去']](https://www.cndcxc.com/daiyunketang/20251021/17021.html)
+- [['https://www.sgdaiyun.com/311834293192.html', '缺锌让精子活力受损害中医偏方改善精子活力']](https://www.sgdaiyun.com/311834293192.html)
+- [['https://www.dyqlsu.com/20250316-385.html', '昆明试管供精, 三胎想生男孩，昆明哪家医院有xy精子分离术？']](https://www.dyqlsu.com/20250316-385.html)
+- [['https://www.monpun.com/6359707286059.html', '解析广州试管婴儿的费用明细及整体花费']](https://www.monpun.com/6359707286059.html)
+- [['https://www.jszgyh.com/221161119435.html', None]](https://www.jszgyh.com/221161119435.html)
+- [['https://www.zrbbavaq.cn/29215212941710.html', '昆明做找人代生宝宝费用可以选择男孩女孩吗(昆明做找人代生宝宝费用成功率)']](https://www.zrbbavaq.cn/29215212941710.html)
+- [['https://www.xnnpbhdz.cn/12084433028774.html', 'Le拉拉彡代上岸，成功得到小棉袄啦！,国内代孕网']](https://www.xnnpbhdz.cn/12084433028774.html)
+- [['https://www.syldezdhkj.cn/16582466607645.html', '42岁取卵8个一般能配几个？,供卵试管费用']](https://www.syldezdhkj.cn/16582466607645.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
