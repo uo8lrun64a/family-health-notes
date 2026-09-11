@@ -63,13 +63,17 @@
 
 ## 推荐站点
 
-- [吉林省人民医院试管婴儿成功率高吗？长春吉大二院试管成功率解读](https://www.wuzhenzhi.cn/105.html)
-- [移植后要注意些什么才能提高成功率呢？视频讲解全方位指南](https://www.wuzhenzhi.cn/107.html)
-- [长沙哪里可以做第三代试管婴儿？PGT技术适应症与非医疗性别选择的合法性说明](https://www.wuzhenzhi.cn/108.html)
-- [三代试管可以解决糖尿病吗？2型糖尿病遗传风险科普解读](https://www.wuzhenzhi.cn/109.html)
-- [衡阳试管婴儿医院——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/11.html)
-- [有做二代试管生男孩的吗？解析二代试管与胎儿性别那些事](https://www.wuzhenzhi.cn/110.html)
-- [国内、泰国、美国第三代试管婴儿怎么选？三代试管目的地全面对比](https://www.wuzhenzhi.cn/111.html)
-- [第三代试管包生儿子有影响吗？解析PGT技术与性别选择真相](https://www.wuzhenzhi.cn/112.html)
+- [['https://www.cd-hssf.com/107253129102.html', '山东生殖科排名前十的医院排名已更新']](https://www.cd-hssf.com/107253129102.html)
+- [['https://www.bjwdzxkj.cn/2553773130805.html', '代生那儿最权威促排期间腰疼怎么回事']](https://www.bjwdzxkj.cn/2553773130805.html)
+- [['https://www.3899234.com/20250927-56.html', '试管婴儿怀孕后的b超检查及所用，试管盲移和b超下移植']](https://www.3899234.com/20250927-56.html)
+- [['https://www.chengyanghg.cn/330.html', '促排卵期间的身体反应与情绪变化分享']](https://www.chengyanghg.cn/330.html)
+- [['https://www.sgdaiyun.com/205705373088.html', '杭州较好的试管生殖医院是哪家呢！杭州试管成功率最高的医院！']](https://www.sgdaiyun.com/205705373088.html)
+- [['https://www.syldezdhkj.cn/21784709345408.html', '做试管代生收费促排后卵泡多怎么办？试管代生收费促排后期卵泡数量会变多吗？']](https://www.syldezdhkj.cn/21784709345408.html)
+- [['https://www.ppmaas.com/guoneishiguanjigou/490.html', '日本三代试管供卵套餐基因筛选费用(日本试管供卵套餐成功率)']](https://www.ppmaas.com/guoneishiguanjigou/490.html)
+- [['https://www.fmngst.com/3298069162246.html', '安徽试管婴儿医院排名']](https://www.fmngst.com/3298069162246.html)
+- [['https://www.sjb493.cn/27251221958240.html', '汕头三代代生哪家较好点医院靠谱吗？2026助孕成功率参考']](https://www.sjb493.cn/27251221958240.html)
+- [['https://www.dyqlsu.com/20250411-394.html', '供卵代孕包成功,瘦多囊试管成功率多少合适_瘦多囊卵巢最快受孕方法！']](https://www.dyqlsu.com/20250411-394.html)
+- [['https://www.cxit.com.cn/lianxiwomen/20251016/14093.html', '月经不调会排卵么会影响怀孕吗']](https://www.cxit.com.cn/lianxiwomen/20251016/14093.html)
+- [['https://www.xmxinyhwzhs.cn/15549932817316.html', '试管移植胚胎时，为什么要“憋尿”？,代孕生儿子大概多少钱&国内有供卵的吗']](https://www.xmxinyhwzhs.cn/15549932817316.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
